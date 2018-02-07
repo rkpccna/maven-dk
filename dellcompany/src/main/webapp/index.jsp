@@ -11,8 +11,6 @@ I am happy with his knowledge and teaching style.
 
 Thanks Ranjit.
 
-Hi Guys, this is new edit from my end. Rukesh 7-02-2018, at 3:33PM
-
 </p>
 
 
